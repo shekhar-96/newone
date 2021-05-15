@@ -1,4 +1,10 @@
 
+
+
+ i got some idea today as well
+
+now i can start
+
 # newone
 
 Hi Shekhar 
